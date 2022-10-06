@@ -1,1 +1,2 @@
-slcd ifpo woi fio ekmf ilob rowkg rokewg io; nokw jkf wgirl iwkm u
+This is the scare code
+The author is not responsible for the use of this product
